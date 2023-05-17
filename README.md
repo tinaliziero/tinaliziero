@@ -6,4 +6,9 @@
 - Amo gatos 🐈‍⬛🖤
 - vai athletico!!! 
 
+
+
+**VOCÊ PODE ENTRAR EM CONTATO COMIGO**  🙂🌸
+
+
 [![](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/valentinaliziero/)
